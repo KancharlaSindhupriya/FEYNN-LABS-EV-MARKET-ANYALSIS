@@ -76,6 +76,7 @@ To understand consumer segments within the EV market using clustering and segmen
 
 **Kancharla Sindhupriya**
 📧 [sindhupriyakancharla04@gmail.com](mailto:sindhupriyakancharla04@gmail.com)
+💼 [LinkedIn](https://www.linkedin.com/in/sindhu-priya-kancharla-0b6666217/)
 🌐 [GitHub Profile](https://github.com/KancharlaSindhupriya)
 
 
